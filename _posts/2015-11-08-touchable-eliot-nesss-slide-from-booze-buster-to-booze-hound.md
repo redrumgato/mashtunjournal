@@ -1,0 +1,48 @@
+---
+ID: 706
+post_title: 'Touchable: Eliot Ness’s Slide from Booze Buster to Booze Hound'
+author: ed
+post_date: 2015-11-08 23:46:12
+post_excerpt: ""
+layout: post
+permalink: >
+  http://www.mashtunjournal.org/2015/11/touchable-eliot-nesss-slide-from-booze-buster-to-booze-hound/
+published: true
+---
+[caption id="attachment_707" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/2015/11/touchable-eliot-nesss-slide-from-booze-buster-to-booze-hound/eliot-ness/" rel="attachment wp-att-707"><img class="size-large wp-image-707" src="http://www.mashtunjournal.org/wp-content/uploads/2015/11/eliot-ness_wide-0cc57fd653b09bddc8350aeff0f42d7a3a44d734-550x310.jpg" alt="Eliot Ness is credited with assembling a team of federal agents who took down Al Capone in Chicago in the 1930s." width="550" height="310" /></a> Eliot Ness is credited with assembling a team of federal agents who took down Al Capone in Chicago in the 1930s.[/caption]
+
+&nbsp;
+
+<strong><em>Touchable: Eliot Ness’s Slide from Booze Buster to Booze Hound</em></strong>
+<em>By Paul Durica -  <a href="http://underthecounterculture.bigcartel.com/product/mash-tun-7">from Mash Tun Journal # 7</a></em>
+
+<strong><em>
+</em></strong>The Republicans are coming to Cleveland, Ohio, population 390,000. In July 2016 the city plans to host the Republican National Convention even though it and the county are decidedly Democratic. In 2012 President Barack Obama won 69.4% of the vote in Cuyahoga County, and Cleveland is the city that gave American politics frequent presidential candidate and famous vegan Dennis Kucinich. Cleveland rose alongside manufacturing and declined with it, shedding people and wealth at a staggering rate in the second half of the twentieth century. It’s a dirty old town, racially divided, with mediocre sports teams, a river known for having caught fire, and the shallowest, brownest Great Lake. In other words, it’s not Dallas, but the Republicans hope that holding the convention there will result in winning Ohio and its eighteen electoral votes come the November election. The Democrats have never held their national convention in Cleveland. For the Republicans it’ll be the second time around.
+
+&nbsp;
+
+In 1936 the Grand Old Party was in a similarly giddy mood. They’d leave Cleveland having nominated for president the governor of Kansas, Alf Landon, a candidate who’d manage in November to win all of eight electoral votes against the incumbent Franklin Delano Roosevelt. In 1936 it made sense to hold the convention in Cleveland. At the time the city was playing host to the Great Lakes Exposition, the equivalent of a World’s Fair. It boasted a population of over 900,000, making it the sixth largest city in the country, and had a popular Republican mayor, Harold Burton. The rising local star in the party was not Mayor Burton but his handpicked, thirty-two-year-old Director for Public Safety, a former prohibition agent and Chicago native, Eliot Ness.
+
+<a href="http://www.mashtunjournal.org/2015/11/touchable-eliot-nesss-slide-from-booze-buster-to-booze-hound/129191-050-5f05873c/" rel="attachment wp-att-708"><img class="alignnone size-large wp-image-708" src="http://www.mashtunjournal.org/wp-content/uploads/2015/11/129191-050-5F05873C-550x732.jpg" alt="129191-050-5F05873C" width="550" height="732" /></a>
+
+Co-written with sports writer Oscar Fraley, Ness’s <em>The Untouchables </em>(1957) has significantly shaped the way Americans imagine the prohibition era, whether or not they’ve read the book or seen the subsequent television and film adaptations. Ness and his team of incorruptible prohibition agents are the jazz age equivalent of the Earp brothers and Doc Holliday and, like them, more legend than fact. The success of the first television show, which ran from 1959-1963, ensured that Ness in the form of Robert Stack would appear on lunchboxes, board games, and comic books. Historians of the twenties, like Laurence Bergreen, have gone to great lengths to undo the legend, accusing Ness of exaggerating his role in bringing Al Capone to justice through daring raids on illegal breweries, but Fraley should be blamed for many of the book’s fictional elements. Preserved in the archives at the Western Reserve Historical Society are the single-spaced, typewritten pages in which Ness tells his story in his own words. The manuscript’s decidedly more modest than the book, television show, and movie that would grow out of it, and Fraley largely ignored it in favor of the stories told to him in person by Ness, late at night, at a hotel in New York. Ness was, Fraley would recall, drunk at the time.
+
+&nbsp;
+
+Ness’s time as a prohibition agent is enough to merit an article in <em>Mash Tun</em>. There’s also the beer named for him, an amber lager, produced by the Great Lakes Brewing Company in Cleveland. The latter is indicative of how the two cities most associated with Ness regard him. In the film version of <em>The Untouchables</em> (1989), Ness is an outsider who can’t fathom how deeply corrupt Chicago is. In truth, his family lived in the Roseland neighborhood in that city; his father, a Norwegian immigrant, owned a bakery in what had been railroad car magnate George Pullman’s factory town. Ness attended Fenger High School and the University of Chicago, where he studied criminology, and would get his position in the Prohibition Bureau through a familial connection. He was a Chicagoan, much more so than the Brooklyn-born Capone, but that city has many heroes and you won’t find a single beer or bridge or really anything named in Ness’s memory there.
+
+<a href="http://www.mashtunjournal.org/2015/11/touchable-eliot-nesss-slide-from-booze-buster-to-booze-hound/eliotness-mayor/" rel="attachment wp-att-709"><img class="alignnone size-large wp-image-709" src="http://www.mashtunjournal.org/wp-content/uploads/2015/11/EliotNess-Mayor-550x424.jpg" alt="EliotNess-Mayor" width="550" height="424" /></a>
+
+Ness came to Cleveland after the repeal of prohibition and a failed attempt at becoming a FBI agent. At the press conference where Mayor Burton announced his new Director for Public Safety, Ness claimed that “every crime has a cure” and set out to prove it. As Safety Director, a position that combined the powers of the police and fire commissioners, Ness modernized both agencies and took a direct role in dismantling organized crime in the city. He was particularly fixated with traffic safety, and automobile deaths did decline during his tenure. A capable administrator in his early thirties, Ness began to be talked about as a potential mayoral candidate, the future of the Republican Party in Cleveland. All the while, whether due to personal weakness, professional stress, private tumult, or for pure pleasure, Ness drank.
+
+&nbsp;
+
+In March 1942, on the way home from a party, he’d strike a man with his car and flee the scene. Witnesses all knew who was responsible since the license plate read NESS-1. He’d resign as Safety Director shortly afterward and take a job in Washington, DC, where he oversaw a campaign to eradicate venereal disease among members of the armed forces. In 1947 he ran for Mayor of Cleveland as a Republican and, like Alf Landon before him, lost handily to a popular Democratic incumbent. After that followed a string of administrative jobs with various companies, one of which brought him to Coudersport, Pennsylvania, where he became well-known in the bars and where he died at the age of fifty-four a month before the publication of the book that made him famous.
+
+&nbsp;
+
+A former prohibition agent with a beer named in his memory whose life was undone by drink—there’s a lesson there, I guess. The Ness found in that typewritten manuscript, the Ness who drank, is a far more human and interesting figure than the unerring, untainted one portrayed by Robert Stack and Kevin Costner. The real Ness liked booze, opera, and cats. He liked artsy women and ended up marrying three of them. He could come across as arrogant before his colleagues, self-aggrandizing before the press, and even a bit cruel among his friends. He didn’t get the job he wanted because of a superior who felt threatened by him (J. Edgar Hoover—this is true), so he took the next best choice, then lost it through his own too human failings. But he did do some good work, particularly in Cleveland, and it is there, not Chicago, that you can buy t-shirts, posters, drink coasters, and more with his name on them. After his death, his ashes were scattered in a lagoon in Lakeview Cemetery, where such Cleveland luminaries as President James Garfield and John D. Rockefeller are interred. Perhaps because of his failures rather than despite them, Ness is a hero in that all-too-human city where on any night you can drink a beer named to honor him.
+
+&nbsp;
+
+I am a Clevelander who has resided in Chicago for the past ten years. I am one of the 600,000 or so Clevelanders who have fled the city since Ness lived there. I remember going to Great Lakes Brewing shortly after it opened on Market Avenue with my father and Uncle Bill. I couldn’t drink—I was ten—but remember ordering a hamburger with blue cheese on it, exotic cuisine for Cleveland in the late 1980s. And I recall two small, circular holes in the brick wall behind the bar and the bartender telling us how the brewery used to be a bank and that the holes were from two bullets fired at Eliot Ness when he single-handedly stopped a robbery there. There’s no truth to the story. It’s like the ones Ness told drunkenly to Fraley. But every time I’m back in Cleveland, I stop by Great Lakes, think of that story, and touch that brick wall, seeing if I can find those bullet holes, even though they’re no longer there.

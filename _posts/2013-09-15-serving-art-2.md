@@ -1,0 +1,61 @@
+---
+ID: 307
+post_title: Serving Art
+author: ed
+post_date: 2013-09-15 22:14:52
+post_excerpt: ""
+layout: post
+permalink: >
+  http://www.mashtunjournal.org/2013/09/serving-art-2/
+published: true
+---
+<a href="http://www.mashtunjournal.org/2013/09/serving-art-2/marioni-1-3/" rel="attachment wp-att-310"><img class="alignnone size-full wp-image-310" alt="Marioni-1" src="http://www.mashtunjournal.org/wp-content/uploads/2013/09/Marioni-11.jpg" width="500" height="339" /></a>
+
+&nbsp;
+
+Tom Marioni has been drinking beer with friends and calling it art for over forty years. In 1970, he invited friends to the Oakland Museum of Art to hang out and drink beer, leaving the bottles and other detritus behind for the museum-going public to behold. He called it <i>The Act of Drinking Beer With Friends is the Highest Form of Art</i> and traced the work’s genesis to his art school days, when the sociable meeting of beer-altered minds produced situations and experiences akin to those ordinarily understood to belong exclusively to art. After the show at the Oakland Museum, Marioni began to host weekly drinking nights in his studio where he gave away beer for free.
+
+&nbsp;
+
+Since then, when <i>The Act of Drinking Beer</i> returns to art institutions, it does so as a free bar. When it was installed at San Francisco's Museum of Modern Art in 1979, Marioni served Anchor Steam Beer. Uniquely appropriate for the venue, Anchor Steam has been brewed in San Francisco for over a hundred years and is perhaps the best known of a type of beer called California Common. The necessity of brewing without refrigeration in the late nineteenth century led many West Coast brewers to use normally cold-fermented lager yeast with warm brewing methods usually reserved for ales, producing a beer that retains characteristics of both ale and lager. California Commons are experimental hybrids that flout traditional wisdom and taste good anyway.
+
+&nbsp;
+
+Anchor itself is no less important in the history of craft beer. After World War II, Anchor held out against industry behemoths like Anheuser-Busch only by cutting costs and compromising its original formula. That led to low-quality beer. But in 1965 Fritz Maytag III, heir to the Maytag washing machine fortune, bought the brewery and began restoring the operation by slowing things down and making smaller quantities of high-quality beer. (In the seventies, he also occasionally supplied Marioni with free cases of Anchor Steam for his art.) With an infusion of capital and Maytag at the helm, Anchor began operating with a new set of values: artfulness, experimentation, and a keen awareness of history—all of them hallmarks of craft brewing today. Maytag's success in turning struggling Anchor into a successful and respected brewery provided an inspirational blueprint for other brewers, helping to spark a paradigm shift away from macrobrews and towards craft beer.
+
+&nbsp;
+
+Craft beer categories are even more well defined than categories in art. With precisely measured qualities like alcohol-by-volume, international bitterness units, and specific gravity, one could easily describe a Pilsner in a few lines. Describing a movement in art, Cubism for example, would likely take a few paragraphs. But at the same time that it establishes standards, craft beer open-mindedly subjects its standards radical mistreatments of its established standards, allowing for the birth of new hybrid categories. Anchor Steam is one example of these proliferating hybrids. Much of the time, these recategorizations are the result of accident and necessity, but they are just as often produced by intentional experimentation. And it is, in the experimental process of making, where craft beer and art share common cause. <i>The Act of Drinking Beer</i> refused inflexible categories—Who could say if it is merely a performance? A sculpture? Ordinary life in masquerade?—and allowed the social form of beer drinking to exist as an artwork in its own right. This impulse to disregard rules without permission, abandoning the urge to patrol boundaries, is what truly opens up new productive avenues for artmaking. Only this kind of freewheeling experimentation can keep art, and brewing, vital.
+
+&nbsp;
+
+Marioni continues to exhibit <i>The Act of Drinking Beer is the Highest Form of Art</i>, most recently at Chicago’s Smart Museum as part of the exhibition <i>Feast: Radical Hospitality in Contemporary Art</i>. Instead of Anchor Steam, Marioni now uses Pacifico. An echo of Anchor Steam's hybridity comes out in the origin story of Marioni's new beer of choice. German immigrants established the original Pacifico brewery in Mazatlán, Mexico in the early twentieth century. Like many other North American cities (including Marioni's childhood home of Cincinnati), Mazatlán bears the influence of its German population to this day. Pacifico’s style, a pale lager originally made to suit a Central European palate, is but one mark of this influence. But for Marioni, this backstory often takes a backseat to what the beer does aesthetically. While it evokes his identity as an artist of the Pacific Rim (and a kid from the Midwest), Pacifico also matches the overwhelmingly yellow visual identity of <i>The Act of Drinking Beer</i>: yellow wood for the bar, yellow beer and label, and special yellow lighting to compete with the merciless white lights usually employed in art museums. At this point in Marioni's career, the aesthetic qualities of the beer take a backseat to the act of drinking it.
+<a href="http://www.mashtunjournal.org/2013/09/serving-art-2/steen-2/" rel="attachment wp-att-311"><img class="alignnone size-full wp-image-311" alt="Steen-2" src="http://www.mashtunjournal.org/wp-content/uploads/2013/09/Steen-2.jpg" width="500" height="331" /></a>
+
+&nbsp;
+
+Since Marioni first served beer at the Oakland Museum as an artwork, many artists have trod a similar path. As the <i>Feast </i>exhibition demonstrates, experiences and scenarios that ordinarily exist simply as a part of life are nowadays routinely refashioned into works of art. Plenty of these artists have also worked with beer. If Marioni tapped the barrel, the artist and homebrewer Eric Steen is working hard to extract every last drop. Like Marioni, Steen's work also developed west of the Rockies. He studied at a special MFA program at Portland State University called Art and Social Practice—one of a handful of MFA programs in the United States where artists go to study art practices that slither between the slippery domains of life and art. These days he lives in Colorado Springs, a city that (like Portland) takes craft beer seriously. Steen's deployment into the world of beer does takes a few cues from Marioni, especially when it comes to his interest in the way a beer-focused social gathering functions. Beer primarily serves Marioni as a readymade product, a convenient tool used to lubricate social encounters. But for Steen, it is also a well-crafted substance with a specific history that posesses the remarkable power to both loose people up <i>and</i> bond them together.
+
+&nbsp;
+
+A project he organized last year, <i>Beers Made By Walking</i>, showcases these qualities. Steen gathered naturalists and homebrewers for seven hikes in the rugged landscape surrounding Colorado Springs. The public was invited to come along. The naturalists led the hikers along trails and pointed out significant plants like yarrow, rose hips, and wild hops. With the naturalists' help, each of the homebrewers selected edible or medicinal plants as the base of a new recipe. They experimented with the foraged ingredients and then produced larger batches at two local breweries. There were seven beers in all, including a bright pink prickly pear cactus wheat beer (called Opuntaie Deorum), a double Belgian IPA with chokecherry (Monk Choker), and a stout flavored with sarsaparilla, hazlenuts, and spruce (Old Man of the Woods). After a full summer of hiking and brewing, <i>Beers Made By Walking</i> culminated in the fall with public tastings at a local brewpup. Each link on the beer's chain of production became a site for rethinking brewing as an artful process.
+
+&nbsp;
+
+The pub is an equally important site for Steen's work. "Pub" comes from shortening the Britishism "public house," a near oxymoron that weds the private—house evokes home, and what could be more private?—with its opposite. Historically, pubs were places where people gathered to do much more than anonymously mull over a pint in silence. In villages across the United Kingdom, pubs were like houses that belonged to the local populace, indispensable local institutions where communities gathered, holidays were celebrated, and news from the road was exchanged. Resurrecting this lively dynamic is a key purpose of <i>Pub School</i>, a project Steen organized in Glasgow, Scotland over six weeks in 2010. Weekly homebrewing demos, beer tastings, lectures, and pub crawls were all hosted by a local art space. Through these educational programs, the gallery became a sort of public house for Glasgow's beer scene, bringing homebrewers together with each other and with professional brewers in the area. One of the homebrews was even chosen to go into production at a local brewery. The project gave the public an opportunity to recognize and directly partake in the nuanced beer culture fermenting right under their noses.
+
+&nbsp;
+
+Whether it exists in a gallery or on a neighborhood corner, the pub is, at its best, a place where the familiarity born of a community creates a favorable atmosphere for the unexpected to occur and for experiments to happen. Under one roof, Steen gathers professionals and amateurs, strangers and friends, and asks them to drink beer. But, in this case, the act of drinking is but one facet of a many-sided artwork. Where beer is a readymade for Marioni, for Steen it is a magic stuff with qualities that open up a broad range of experiences—both from the beer itself and the scene of its consumption.
+
+&nbsp;
+
+This tracks with the history of craft beer. Since the sixties, the answer to the question "what to drink?" has become complicated in the best sense. Where one might have once chosen between beer, wine, or liquor, there's now stout, saison, or IPA. And it's even subtler than that; the choice today may just as easily be among an IPA flavored with fruit essence, a double IPA, or an imperial IPA. Steen's work benefits from and mirrors this ongoing sophistication of beer-drinking culture. Among this bounty of possibilities, the artist asks beer drinkers to not only conceive of their beverage symbolically—as a emblem of conviviality—but to also understand beer as a complex aesthetic object in its own right, capable of both the utmost sophistication and the most sublime sloppiness at the same time. As an object of fascination it routinely outstrips categorizations, whether it's sloshing over the rim of a glass after a generous pull on the tap or exploding out of a shotgunned Coors Light. Attempting to domesticate beer's non-hierarchical tendencies would mean watching it go flat. And, in that case, what would be the point? Most of us would take a foamed up, flavorful beer over a dormant and stale one any day, even if it makes a mess. As Steen muddles the boundaries of art and craft beer, he encourages people to bring to beer the attentiveness they might otherwise bring to art (and vice versa). And just as beer loiters on the threshold between sobriety and inebriation, so it exists as a liquid medium through which one might pass cheerfully from art to life and back again.
+
+
+<strong><em>-- by Bryce Dwyer - From issue 1 of Mash Tun Journal
+</em></strong>
+
+Top Photo: Tom Marioni, <i>The Act of Drinking Beer is the Highest Form of Art</i>, 1970-2012. Courtesy of The Smart Museum of Art.
+
+Second Photo: Eric Steen, <i>Beers Made By Walking</i>, 2011. Courtesy of Eric Steen. Photo by Daniel Flanders.
