@@ -9,7 +9,7 @@ permalink: >
   http://www.mashtunjournal.org/2017/01/know-thyself-an-essay-on-lazy-beer-marketing/
 published: true
 ---
-<a href="http://www.mashtunjournal.org/?attachment_id=926" rel="attachment wp-att-926"><img class="alignnone size-large wp-image-926" src="http://www.mashtunjournal.org/wp-content/uploads/2017/01/instagram-550x587.jpg" alt="" width="550" height="587" /></a>
+<a href="http://www.mashtunjournal.org/2017/01/know-thyself-an-essay-on-lazy-beer-marketing/instagram/" rel="attachment wp-att-926"><img class="alignnone size-large wp-image-926" src="http://www.mashtunjournal.org/wp-content/uploads/2017/01/instagram-550x587.jpg" alt="" width="550" height="587" /></a>
 
 &nbsp;
 
@@ -53,7 +53,7 @@ The folks at Super Brad are super goofy, with a weird sense of humor and a pench
 
 &nbsp;
 
-<a href="http://www.mashtunjournal.org/?attachment_id=927" rel="attachment wp-att-927"><img class="alignnone size-large wp-image-927" src="http://www.mashtunjournal.org/wp-content/uploads/2017/01/skate-550x717.jpg" alt="" width="550" height="717" /></a>
+<a href="http://www.mashtunjournal.org/2017/01/know-thyself-an-essay-on-lazy-beer-marketing/skate/" rel="attachment wp-att-927"><img class="alignnone size-large wp-image-927" src="http://www.mashtunjournal.org/wp-content/uploads/2017/01/skate-550x717.jpg" alt="" width="550" height="717" /></a>
 
 <strong>Case Study #2: Heelflip Brewing Company</strong>
 
