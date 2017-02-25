@@ -9,7 +9,7 @@ permalink: >
   http://www.mashtunjournal.org/2017/02/best-looking-brands-in-beer-part-3-grimm-artisanal-ales/
 published: true
 ---
-<em> <a href="http://www.mashtunjournal.org/?attachment_id=938" rel="attachment wp-att-938"><img class="alignnone size-large wp-image-938" src="http://www.mashtunjournal.org/wp-content/uploads/2017/02/Screen-Shot-2017-02-24-at-11.39.13-PM-550x678.png" alt="" width="550" height="678" /></a>
+<em> <a href="http://www.mashtunjournal.org/2017/02/best-looking-brands-in-beer-part-3-grimm-artisanal-ales/screen-shot-2017-02-24-at-11-39-13-pm/" rel="attachment wp-att-938"><img class="alignnone size-large wp-image-938" src="http://www.mashtunjournal.org/wp-content/uploads/2017/02/Screen-Shot-2017-02-24-at-11.39.13-PM-550x678.png" alt="" width="550" height="678" /></a>
 
 A few years ago, we tried to hook up with some mysterious brewer-artists that were serving their beers at exhibitions at alternative galleries in Chicago. We were hosting a series of Art of Beer events and thought they were perfect for the shows—but we never managed to connect. Four years later, we find out that the cats we were looking for were Joe and Lauren Grimm, the owners of Grimm Artisanal Ales.</em>
 
@@ -33,7 +33,7 @@ We're motivated by the challenge—we're discovering how deep the rabbit hole go
 
 &nbsp;
 
-<em><a href="http://www.mashtunjournal.org/?attachment_id=937" rel="attachment wp-att-937"><img class="alignnone size-large wp-image-937" src="http://www.mashtunjournal.org/wp-content/uploads/2017/02/LaurenGrimm_sm-550x388.jpg" alt="" width="550" height="388" /></a></em>
+<em><a href="http://www.mashtunjournal.org/2017/02/best-looking-brands-in-beer-part-3-grimm-artisanal-ales/laurengrimm_sm/" rel="attachment wp-att-937"><img class="alignnone size-large wp-image-937" src="http://www.mashtunjournal.org/wp-content/uploads/2017/02/LaurenGrimm_sm-550x388.jpg" alt="" width="550" height="388" /></a></em>
 
 <strong>I assume you guys started as gypsy brewers instead of diving into the shit of opening your own brewery because of the cost and risk. Would you recommend going this route to others? </strong>
 
@@ -57,7 +57,7 @@ That's why we're constantly working on our relationships with our partner brewer
 
 It's definitely been easier for us to find capacity more recently, but I think that it's actually due to the relationships and reputation that we've built. There are more breweries around these days, but capacity still seems pretty tight. If a brewery is sitting with empty fermenters, ask yourself why. Is that somebody you really want to work with?
 
-<a href="http://www.mashtunjournal.org/?attachment_id=935" rel="attachment wp-att-935"><img class="alignnone size-large wp-image-935" src="http://www.mashtunjournal.org/wp-content/uploads/2017/02/joe-550x550.jpg" alt="" width="550" height="550" /></a>
+<a href="http://www.mashtunjournal.org/2017/02/best-looking-brands-in-beer-part-3-grimm-artisanal-ales/joe/" rel="attachment wp-att-935"><img class="alignnone size-large wp-image-935" src="http://www.mashtunjournal.org/wp-content/uploads/2017/02/joe-550x550.jpg" alt="" width="550" height="550" /></a>
 
 
 <strong>How do you come up with concepts for your beers?</strong>
@@ -87,7 +87,7 @@ Once we've decided on a name, the label design begins. One of our oldest friends
 Even though the final label is a computer file that I've worked through in Illustrator, the images usually begin as a drawing with pen and paper that Gretta or myself will draw. I think that's one reason why our labels stand out so much. You can see the hand in each one, rather than just computer graphics.
 
 
-<a href="http://www.mashtunjournal.org/?attachment_id=936" rel="attachment wp-att-936"><img class="alignnone size-large wp-image-936" src="http://www.mashtunjournal.org/wp-content/uploads/2017/02/MagneticCOmpass-550x550.jpg" alt="" width="550" height="550" /></a>
+<a href="http://www.mashtunjournal.org/2017/02/best-looking-brands-in-beer-part-3-grimm-artisanal-ales/magneticcompass/" rel="attachment wp-att-936"><img class="alignnone size-large wp-image-936" src="http://www.mashtunjournal.org/wp-content/uploads/2017/02/MagneticCOmpass-550x550.jpg" alt="" width="550" height="550" /></a>
 
 <strong>Can you tell me more of about the community of artists, brewers, and distributors that helped form Grimm along with you guys?</strong>
 
