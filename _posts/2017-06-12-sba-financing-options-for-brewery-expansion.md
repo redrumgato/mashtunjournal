@@ -11,7 +11,7 @@ permalink: >
   http://www.mashtunjournal.org/2017/06/sba-financing-options-for-brewery-expansion/
 published: true
 ---
-<a href="http://www.mashtunjournal.org/?attachment_id=953" rel="attachment wp-att-953"><img class="alignnone size-large wp-image-953" src="http://www.mashtunjournal.org/wp-content/uploads/2017/06/Screen-Shot-2017-06-12-at-3.46.09-PM-550x287.png" alt="" width="550" height="287" /></a>
+<a href="http://www.mashtunjournal.org/2017/06/sba-financing-options-for-brewery-expansion/screen-shot-2017-06-12-at-3-46-09-pm/" rel="attachment wp-att-953"><img class="alignnone size-large wp-image-953" src="http://www.mashtunjournal.org/wp-content/uploads/2017/06/Screen-Shot-2017-06-12-at-3.46.09-PM-550x287.png" alt="" width="550" height="287" /></a>
 
 
 I have been in commercial lending since 2005 and have closely followed the expansion of the craft beer industry for many years. Over the past several years, I had the good fortune to work with several individuals involved in various capacities within the craft beer industry. Throughout my interactions with them, I regularly found myself as interested with the business side of the industry as I was with the beers being created.
@@ -40,7 +40,7 @@ Should you decide to move forward with an SBA loan for your brewery, the next lo
 •    Does the lender offer working capital lines of credit?
 •    This can be important if you anticipate needing a loan to support working capital in the future. Not all SBA lenders offer working capital lines which will limit your business if you find yourself in need of one. Similar to the first point, if you work with a lender who does not support working capital lines, you may be forced to retire or refinance the term loan with another lender in order to obtain the line of credit.
 
-<a href="http://www.mashtunjournal.org/?attachment_id=955" rel="attachment wp-att-955"><img class="alignnone size-large wp-image-955" src="http://www.mashtunjournal.org/wp-content/uploads/2017/06/Screen-Shot-2017-06-12-at-3.48.54-PM-550x327.png" alt="" width="550" height="327" /></a>
+<a href="http://www.mashtunjournal.org/2017/06/sba-financing-options-for-brewery-expansion/screen-shot-2017-06-12-at-3-48-54-pm/" rel="attachment wp-att-955"><img class="alignnone size-large wp-image-955" src="http://www.mashtunjournal.org/wp-content/uploads/2017/06/Screen-Shot-2017-06-12-at-3.48.54-PM-550x327.png" alt="" width="550" height="327" /></a>
 
 
 <strong>SBA 7(a) Loan Scenario:</strong>
@@ -58,7 +58,7 @@ Given the pace at which many breweries are growing and thus outgrowing their fac
 By utilizing this structure, the bank is comforted by the quicker repayment for the build out loan, while recognizing the collateral provided by the new and existing equipment to secure the equipment loan. By accelerating the payoff on the buildout loan, the brewery will be in better position to accommodate a move to a new facility as they will not be weighed down by debt used on facility they wish to leave.
 
 
-<a href="http://www.mashtunjournal.org/?attachment_id=956" rel="attachment wp-att-956"><img class="alignnone size-large wp-image-956" src="http://www.mashtunjournal.org/wp-content/uploads/2017/06/Screen-Shot-2017-06-12-at-3.51.09-PM-550x376.png" alt="" width="550" height="376" /></a>
+<a href="http://www.mashtunjournal.org/2017/06/sba-financing-options-for-brewery-expansion/screen-shot-2017-06-12-at-3-51-09-pm/" rel="attachment wp-att-956"><img class="alignnone size-large wp-image-956" src="http://www.mashtunjournal.org/wp-content/uploads/2017/06/Screen-Shot-2017-06-12-at-3.51.09-PM-550x376.png" alt="" width="550" height="376" /></a>
 
 
 <strong>SBA 504 Program Overview:</strong>
