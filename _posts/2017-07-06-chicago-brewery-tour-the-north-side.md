@@ -1,6 +1,6 @@
 ---
 ID: 972
-post_title: 'Chicago Brewery Tour: Part 2,The North Side'
+post_title: 'Chicago Brewery Tour: Part 2, The North Side'
 author: ed
 post_date: 2017-07-06 21:14:16
 post_excerpt: ""
@@ -11,9 +11,7 @@ published: true
 ---
 <a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/chicagobrewerytour/" rel="attachment wp-att-969"><img class="alignnone size-large wp-image-969" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/chicagobrewerytour-550x337.jpg" alt="" width="550" height="337" /></a>
 
-<em><strong>Part 2, The North Side - </strong>Read <a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/">Part 1: The West Side here</a>.
-
-</em>
+<em><strong>Part 2, The North Side - </strong>Read <a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/">Part 1: The West Side here</a>.</em>
 <em>Chicago’s North Side is teeming with brewery taprooms. Thanks to a comprehensive public transit system and (mostly) bike-friendly roadways, drinkers can navigate North Side brewery taprooms with ease. Seriously, get a bike or a Ventra card. Cycling is ideal, but the CTA’s buses and trains (Blue, Brown, and Red lines) can take folks from one North Side brewery to another in a jiffy. - Calvin Fredrickson
 </em>
 
