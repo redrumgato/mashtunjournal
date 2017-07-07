@@ -42,7 +42,7 @@ When Illinois competes at the Great American Beer Festival in Colorado each year
 They have earned this reputation by making tasty suds. Brewmaster, David Williams, was a graduate of the legendary C.H.A.O.S Homebrew club and is the definition of the weird turning pro. We expect him to keep making the award winning brews which complement his solid pale ales, kolschs and IPAs.
 
 &nbsp;
-<a href="http://www.mashtunjournal.org/?attachment_id=988" rel="attachment wp-att-988"><img class="alignnone size-large wp-image-988" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/whinerSM-550x367.jpg" alt="" width="550" height="367" /></a>
+<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-part-3-the-southside/whinersm/" rel="attachment wp-att-988"><img class="alignnone size-large wp-image-988" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/whinerSM-550x367.jpg" alt="" width="550" height="367" /></a>
 
 &nbsp;
 
@@ -58,7 +58,7 @@ Whiner is the anchor tenant for The Plant, a vertical farm and food business inc
 
 &nbsp;
 
-<a href="http://www.mashtunjournal.org/?attachment_id=989" rel="attachment wp-att-989"><img class="alignnone size-large wp-image-989" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/MARZ_SM-550x413.jpg" alt="" width="550" height="413" /></a>
+<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-part-3-the-southside/marz_sm/" rel="attachment wp-att-989"><img class="alignnone size-large wp-image-989" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/MARZ_SM-550x413.jpg" alt="" width="550" height="413" /></a>
 
 &nbsp;
 
@@ -78,7 +78,7 @@ Marz will have a tasting room, a bottle/merch shop and more. Since our tap room 
 
 &nbsp;
 
-<a href="http://www.mashtunjournal.org/?attachment_id=990" rel="attachment wp-att-990"><img class="alignnone size-large wp-image-990" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/baderbrau3-550x367.jpg" alt="" width="550" height="367" /></a>
+<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-part-3-the-southside/baderbrau3/" rel="attachment wp-att-990"><img class="alignnone size-large wp-image-990" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/baderbrau3-550x367.jpg" alt="" width="550" height="367" /></a>
 
 &nbsp;
 
@@ -94,7 +94,7 @@ I love the Gunsmoke, a lightly smoked hefeweizen and their Pilsners and Lagers a
 
 &nbsp;
 
-<a href="http://www.mashtunjournal.org/?attachment_id=991" rel="attachment wp-att-991"><img class="alignnone size-large wp-image-991" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/motorrowSM-550x367.jpg" alt="" width="550" height="367" /></a>
+<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-part-3-the-southside/motorrowsm/" rel="attachment wp-att-991"><img class="alignnone size-large wp-image-991" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/motorrowSM-550x367.jpg" alt="" width="550" height="367" /></a>
 
 &nbsp;
 
@@ -151,7 +151,7 @@ My guess is that the limited menu for both beer and food is designed to make sur
 
 &nbsp;
 
-<a href="http://www.mashtunjournal.org/?attachment_id=992" rel="attachment wp-att-992"><img class="alignnone size-large wp-image-992" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/lores2SM-550x367.jpg" alt="" width="550" height="367" /></a>
+<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-part-3-the-southside/lores2sm/" rel="attachment wp-att-992"><img class="alignnone size-large wp-image-992" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/lores2SM-550x367.jpg" alt="" width="550" height="367" /></a>
 
 <a href="http://lorezbrewing.com"><strong>Lo-Rez Brewing</strong></a>
 
@@ -165,7 +165,7 @@ Lo-Rez are are putting the finishing touches on their taproom in Pilsen and will
 
 &nbsp;
 
-<a href="http://www.mashtunjournal.org/?attachment_id=993" rel="attachment wp-att-993"><img class="alignnone size-large wp-image-993" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Lagunitas_stainlessSM-550x358.jpg" alt="" width="550" height="358" /></a>
+<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-part-3-the-southside/lagunitas_stainlesssm/" rel="attachment wp-att-993"><img class="alignnone size-large wp-image-993" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Lagunitas_stainlessSM-550x358.jpg" alt="" width="550" height="358" /></a>
 
 &nbsp;
 
