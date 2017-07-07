@@ -19,7 +19,7 @@ Read Part 1 here.
 
 &nbsp;
 
-[caption id="attachment_973" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/?attachment_id=973" rel="attachment wp-att-973"><img class="size-large wp-image-973" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/halfacre_BrewBokeh25SM-550x367.jpg" alt="" width="550" height="367" /></a> Photo supplied by Half Acre[/caption]
+[caption id="attachment_973" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-north-side/halfacre_brewbokeh25sm/" rel="attachment wp-att-973"><img class="size-large wp-image-973" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/halfacre_BrewBokeh25SM-550x367.jpg" alt="" width="550" height="367" /></a> Photo supplied by Half Acre[/caption]
 
 &nbsp;
 
@@ -35,7 +35,7 @@ Finding a table or seat at Half Acre’s taproom is tough some evenings, so get 
 
 &nbsp;
 
-[caption id="attachment_974" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/?attachment_id=974" rel="attachment wp-att-974"><img class="size-large wp-image-974" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Potential-Cover-Shot_Dovetail_Photo-By-Steph-Byce-1SM-550x367.jpg" alt="" width="550" height="367" /></a> Photo by Steph Byce[/caption]
+[caption id="attachment_974" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-north-side/potential-cover-shot_dovetail_photo-by-steph-byce-1sm/" rel="attachment wp-att-974"><img class="size-large wp-image-974" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Potential-Cover-Shot_Dovetail_Photo-By-Steph-Byce-1SM-550x367.jpg" alt="" width="550" height="367" /></a> Photo by Steph Byce[/caption]
 
 &nbsp;
 
@@ -55,7 +55,7 @@ Saturday brewery tours at Dovetail allow guests to drink beer straight from the 
 
 &nbsp;
 
-[caption id="attachment_975" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/?attachment_id=975" rel="attachment wp-att-975"><img class="size-large wp-image-975" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Old-Irving-Brewing_Photo-by-Tricia-Scully-9SM-550x375.jpg" alt="" width="550" height="375" /></a> Photo by Tricia Scully[/caption]
+[caption id="attachment_975" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-north-side/old-irving-brewing_photo-by-tricia-scully-9sm/" rel="attachment wp-att-975"><img class="size-large wp-image-975" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Old-Irving-Brewing_Photo-by-Tricia-Scully-9SM-550x375.jpg" alt="" width="550" height="375" /></a> Photo by Tricia Scully[/caption]
 
 &nbsp;
 
@@ -71,7 +71,7 @@ Looking to play some drinking games while you, err, drink? Hold my beer, Old Irv
 
 &nbsp;
 
-[caption id="attachment_976" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/?attachment_id=976" rel="attachment wp-att-976"><img class="size-large wp-image-976" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Hopewell_Photo-by-JJ-Jetel3SM-550x418.jpg" alt="" width="550" height="418" /></a> Photo by JJ Jetel[/caption]
+[caption id="attachment_976" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-north-side/hopewell_photo-by-jj-jetel3sm/" rel="attachment wp-att-976"><img class="size-large wp-image-976" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Hopewell_Photo-by-JJ-Jetel3SM-550x418.jpg" alt="" width="550" height="418" /></a> Photo by JJ Jetel[/caption]
 
 &nbsp;
 
