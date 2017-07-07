@@ -1,6 +1,6 @@
 ---
 ID: 961
-post_title: 'Chicago Brewery Tour: The West Side'
+post_title: 'Chicago Brewery Tour: Part 1, The West Side'
 author: ed
 post_date: 2017-07-06 20:55:34
 post_excerpt: ""
@@ -11,7 +11,8 @@ published: true
 ---
 <em><a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/chicagobrewerytour/" rel="attachment wp-att-969"><img class="alignnone size-large wp-image-969" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/chicagobrewerytour-550x337.jpg" alt="" width="550" height="337" /></a></em>
 
-<strong><em>Part 1 of 3 of Chicago Brewery Tour</em></strong>
+<strong><em>Part 1 of 3
+</em></strong>
 
 <em>Chicago’s reputation for making great beers is on the ascendancy. And this a reason you might be noticing why a lot of people visiting the windy city are here for the beer. There are sixty six breweries in Chicago and another hundred or so in the burbs. And whether you like it or not Chicago has become one of the top cities for craft beer in America. Not only do we have enough local breweries that would take you a year to try all of their beer, but Chicago has an incredibly diverse range of beers from around the country and the world making it one of the primary markets for the over hundreds of regional and national craft breweries to break into.</em>
 
