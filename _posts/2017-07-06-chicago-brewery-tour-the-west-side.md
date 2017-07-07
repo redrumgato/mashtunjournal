@@ -22,17 +22,13 @@ published: true
 
 <em>We created a few tours in which to investigate our city’s microbreweries and brewpubs that a reasonable person could finish in a day or two. And we picked breweries that have tap rooms or tasting rooms and have left out most production only facilities. You don’t like our picks? <a href="https://www.chicagoreader.com/chicago/ultimate-brewery-tours-guide-craft-beer/Content?oid=25806599">The Chicago Reader</a> recently put out a guide to the best Brewery Tours in the city and <a href="http://thehopreview.com/blog/chicago-brewery-list">The Hop Review</a> has a comprehensive google map of all of our metropolitan breweries. We encourage you to design your own tours and guides to drinking beer and want you to share them with us. Enjoy the ride.</em>
 
-<em>If you have one day to fill on a brewery tour of Chicago and are not going to Indiana to visit Three Floyd’s then this might be your best option. It’s close to the loop, the distances between them are not too far. It’s bike-able, walkable and taxi friendly. The tour includes a range of small brewpubs to the second largest craft brewing facility in Chicago. It also has a lot of food options. And if you want to eat your way through all this beer, this route maximizes your options. Enjoy.  - Edmar
+<em>If you have one day to fill on a brewery tour of Chicago and are not going to Indiana to visit Three Floyd’s then this might be your best option. It’s close to the loop, the distances between them are not too far. It’s bike-able, walkable and taxi friendly. The tour includes a range of small brewpubs to the second largest craft brewing facility in Chicago. It also has a lot of food options. And if you want to eat your way through all this beer, this route maximizes your options. Enjoy.  - Edmar</em>
+
+<em>
 </em>
 <a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/haymarket_sm/" rel="attachment wp-att-964"><img class="alignnone size-large wp-image-964" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/haymarket_SM-550x367.jpg" alt="" width="550" height="367" /></a>
 
 <strong>Haymarket Pub &amp; Brewery</strong>
-
-737 W Randolph St, Chicago, IL 60661
-
-(312)-638-0700
-
-<a href="http://www.haymarketbrewing.com/">www.haymarketbrewing.com</a>
 
 &nbsp;
 
@@ -52,13 +48,9 @@ Haymarket probably learned that opening a brewery in Chicago is a nightmare. Aft
 
 &nbsp;
 
-<strong>Cruz Blanca</strong>
+<a href="http://www.rickbayless.com/restaurants/cerveceria-cruz-blanca/"><strong>Cruz Blanca</strong></a>
 
-900 W Randolph St, Chicago, IL 60607
-
-(312) 733-1975
-
-<u> </u>
+&nbsp;
 
 Rick Bayless has a nationally distributed line of beers called Tocayo. They are ok, but they’re nothing super special. Which surprised me because Rick should know better. But maybe he noticed he couldn’t control that aspect of his brand. So, being a Business Genius, Rick opened his own brewing joint in the middle of the Randolph Street food zone to make up for the contract brew. First thing i like most of all is the Cruz Blanca branding. It is some of the freshest and best stuff in town. I love the nod to the Mexico Olympics of 1968 because it reminds me of the Revolution, man, with fists help high in the air, the Paris revolt, etc. Second best thing I love about Rick is that he is a leader in sustainable business practices. His Frontera Farmer Foundation invested over $2 Million in local farms to help them scale up. What’s not to like about this guy? So it’s great that he has a brewpub, purchasing local farmers produce and making locally crafted liquid.
 
@@ -74,11 +66,7 @@ If yer still hungry after eating at Haymarket there are delicious Oaxacan-style 
 
 &nbsp;
 
-<strong>Goose Island</strong>
-
-1800 W Fulton St, Chicago, IL 60612
-
-(800) 466-7363
+<a href="http://www.gooseisland.com/"><strong>Goose Island</strong></a>
 
 &nbsp;
 
@@ -100,12 +88,6 @@ When you stop by the taproom on Fulton you will see what you might expect to see
 
 <strong>On Tour Brewing Company</strong>
 
-1725 W Hubbard St, Chicago, IL 60622
-
-(312) 796-3119
-
-<a href="https://ontourbrewing.com/">ontourbrewing.com</a>
-
 &nbsp;
 
 After your visit to Goose Island walk north a few blocks to the next stop. On Tour Brewing just popped up out of nowhere it seems. The classic high roofed former boiler warehouse building has a 75 person seating area to sit at that looks upon the brewhouse as if it were a theater stage. You might not know this but most brewers don’t like being watched while they work, but its the curse of having a tap room. Just deal with it, brewers! It’s fun to watch you make our liquid.
@@ -124,13 +106,9 @@ On Tour allows you to take some of their dozen or so draft beers to go as a 32oz
 
 <strong> </strong>
 
-<strong>Forbidden Root</strong>
+<a href="http://forbiddenroot.com"><strong>Forbidden Root</strong></a>
 
-1746 W Chicago Ave, Chicago, IL 60622
-
-(312) 929-2202
-
-<a href="http://www.forbiddenroot.com/menus">forbiddenroot.com</a>
+&nbsp;
 
 Four or five years ago I was blown away by the fact owner and founder, Robert Finkel was fixated on making botanical brews. Back then my experience with this “style” of beer was related to Not Your Father’s Root Beer, weird alcoholic ginger beers, and Gruits. Little did I know that Robert’s obsession with botanical brewing would lead to a wide range of experimental and delicious concoctions made in collaboration with “Alchemist”, Randy Mosher, a well regarded author, brewer and apostle of the beer business.
 
@@ -146,16 +124,9 @@ One more thing, brewer, BJ Pichman is also making some great IPAs, sour beers an
 
 &nbsp;
 
-<strong>Piece Brewery &amp; Pizzeria</strong>
+<a href="http://www.piecechicago.com"><strong>Piece Brewery &amp; Pizzeria</strong></a>
 
-1927 W North Ave, Chicago, IL 60622
-
-(773) 772-4422
-
-<a href="http://www.piecechicago.com/">www.piecechicago.com</a>
-
-<u> </u>
-
+&nbsp;
 I know I said I hate TVs but this place is the blueprint for sports bar meets brewery and pizza joint.
 
 And it wouldn’t be right to just end the West Side tour at Forbidden Root when ya know just up in Liquor Park is a brewpub that has been kicking ass since 2001. In fact they were one of the few brewpubs that opened after the 90s craft beer bubble. And boy did they win big. Head brewer, Jonathan Cutler, a Goose alum, has been squeezing out gems and winning major beer awards ever since they opened the place. This is extremely difficult to do nowadays since there are over 5,000 breweries in operation across the country. And ya wanna know why ya never see there beer on tap anywhere else? They can’t make enough to satisfy their customers’ demands in the tap room.
