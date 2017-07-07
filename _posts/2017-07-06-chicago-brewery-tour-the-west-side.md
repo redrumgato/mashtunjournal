@@ -125,8 +125,6 @@ One more thing, brewer, BJ Pichman is also making some great IPAs, sour beers an
 &nbsp;
 
 <a href="http://www.piecechicago.com"><strong>Piece Brewery &amp; Pizzeria</strong></a>
-
-&nbsp;
 I know I said I hate TVs but this place is the blueprint for sports bar meets brewery and pizza joint.
 
 And it wouldn’t be right to just end the West Side tour at Forbidden Root when ya know just up in Liquor Park is a brewpub that has been kicking ass since 2001. In fact they were one of the few brewpubs that opened after the 90s craft beer bubble. And boy did they win big. Head brewer, Jonathan Cutler, a Goose alum, has been squeezing out gems and winning major beer awards ever since they opened the place. This is extremely difficult to do nowadays since there are over 5,000 breweries in operation across the country. And ya wanna know why ya never see there beer on tap anywhere else? They can’t make enough to satisfy their customers’ demands in the tap room.
