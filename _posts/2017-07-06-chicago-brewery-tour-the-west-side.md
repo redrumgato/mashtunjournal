@@ -9,9 +9,11 @@ permalink: >
   http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/
 published: true
 ---
-<em><a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/chicagobrewerytour/" rel="attachment wp-att-969"><img class="alignnone size-large wp-image-969" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/chicagobrewerytour-550x337.jpg" alt="" width="550" height="337" /></a>
+<em><a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/chicagobrewerytour/" rel="attachment wp-att-969"><img class="alignnone size-large wp-image-969" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/chicagobrewerytour-550x337.jpg" alt="" width="550" height="337" /></a></em>
 
-Chicago’s reputation for making great beers is on the ascendancy. And this a reason you might be noticing why a lot of people visiting the windy city are here for the beer. There are sixty six breweries in Chicago and another hundred or so in the burbs. And whether you like it or not Chicago has become one of the top cities for craft beer in America. Not only do we have enough local breweries that would take you a year to try all of their beer, but Chicago has an incredibly diverse range of beers from around the country and the world making it one of the primary markets for the over hundreds of regional and national craft breweries to break into.</em>
+<strong><em>Part 1 of 3 of Chicago Brewery Tour</em></strong>
+
+<em>Chicago’s reputation for making great beers is on the ascendancy. And this a reason you might be noticing why a lot of people visiting the windy city are here for the beer. There are sixty six breweries in Chicago and another hundred or so in the burbs. And whether you like it or not Chicago has become one of the top cities for craft beer in America. Not only do we have enough local breweries that would take you a year to try all of their beer, but Chicago has an incredibly diverse range of beers from around the country and the world making it one of the primary markets for the over hundreds of regional and national craft breweries to break into.</em>
 
 <em>The explosion of breweries in Chicagoland is a relatively recent phenomena. In the past few years you can find a brewery in many of the high traffic hospitality and entertainment districts in the city. But there are also breweries opening up in out of the way industrial corridors and neighborhoods you have never visited before. This is great for Chicago and craft beer drinkers everywhere. You can drink hyper local and regional brews that are high quality, rad and fresh. Some of the first craft breweries started here in the city and a dozen or so advanced and innovative breweries are making beers sought after all over the world. We have some of the best bars in the world, and restaurants that make food to pair with beer that are internationally renowned.</em>
 
@@ -19,11 +21,8 @@ Chicago’s reputation for making great beers is on the ascendancy. And this a r
 
 <em>We created a few tours in which to investigate our city’s microbreweries and brewpubs that a reasonable person could finish in a day or two. And we picked breweries that have tap rooms or tasting rooms and have left out most production only facilities. You don’t like our picks? <a href="https://www.chicagoreader.com/chicago/ultimate-brewery-tours-guide-craft-beer/Content?oid=25806599">The Chicago Reader</a> recently put out a guide to the best Brewery Tours in the city and <a href="http://thehopreview.com/blog/chicago-brewery-list">The Hop Review</a> has a comprehensive google map of all of our metropolitan breweries. We encourage you to design your own tours and guides to drinking beer and want you to share them with us. Enjoy the ride.</em>
 
-
-
-If you have one day to fill on a brewery tour of Chicago and are not going to Indiana to visit Three Floyd’s then this might be your best option. It’s close to the loop, the distances between them are not too far. It’s bike-able, walkable and taxi friendly. The tour includes a range of small brewpubs to the second largest craft brewing facility in Chicago. It also has a lot of food options. And if you want to eat your way through all this beer, this route maximizes your options. Enjoy.
-
-&nbsp;
+<em>If you have one day to fill on a brewery tour of Chicago and are not going to Indiana to visit Three Floyd’s then this might be your best option. It’s close to the loop, the distances between them are not too far. It’s bike-able, walkable and taxi friendly. The tour includes a range of small brewpubs to the second largest craft brewing facility in Chicago. It also has a lot of food options. And if you want to eat your way through all this beer, this route maximizes your options. Enjoy.  - Edmar
+</em>
 <a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/haymarket_sm/" rel="attachment wp-att-964"><img class="alignnone size-large wp-image-964" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/haymarket_SM-550x367.jpg" alt="" width="550" height="367" /></a>
 
 <strong>Haymarket Pub &amp; Brewery</strong>
