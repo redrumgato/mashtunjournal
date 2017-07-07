@@ -9,7 +9,7 @@ permalink: >
   http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/
 published: true
 ---
-<em><a href="http://www.mashtunjournal.org/?attachment_id=969" rel="attachment wp-att-969"><img class="alignnone size-large wp-image-969" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/chicagobrewerytour-550x337.jpg" alt="" width="550" height="337" /></a>
+<em><a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/chicagobrewerytour/" rel="attachment wp-att-969"><img class="alignnone size-large wp-image-969" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/chicagobrewerytour-550x337.jpg" alt="" width="550" height="337" /></a>
 
 Chicago’s reputation for making great beers is on the ascendancy. And this a reason you might be noticing why a lot of people visiting the windy city are here for the beer. There are sixty six breweries in Chicago and another hundred or so in the burbs. And whether you like it or not Chicago has become one of the top cities for craft beer in America. Not only do we have enough local breweries that would take you a year to try all of their beer, but Chicago has an incredibly diverse range of beers from around the country and the world making it one of the primary markets for the over hundreds of regional and national craft breweries to break into.</em>
 
@@ -24,7 +24,7 @@ Chicago’s reputation for making great beers is on the ascendancy. And this a r
 If you have one day to fill on a brewery tour of Chicago and are not going to Indiana to visit Three Floyd’s then this might be your best option. It’s close to the loop, the distances between them are not too far. It’s bike-able, walkable and taxi friendly. The tour includes a range of small brewpubs to the second largest craft brewing facility in Chicago. It also has a lot of food options. And if you want to eat your way through all this beer, this route maximizes your options. Enjoy.
 
 &nbsp;
-<a href="http://www.mashtunjournal.org/?attachment_id=964" rel="attachment wp-att-964"><img class="alignnone size-large wp-image-964" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/haymarket_SM-550x367.jpg" alt="" width="550" height="367" /></a>
+<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/haymarket_sm/" rel="attachment wp-att-964"><img class="alignnone size-large wp-image-964" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/haymarket_SM-550x367.jpg" alt="" width="550" height="367" /></a>
 
 <strong>Haymarket Pub &amp; Brewery</strong>
 
@@ -48,7 +48,7 @@ Haymarket probably learned that opening a brewery in Chicago is a nightmare. Aft
 
 &nbsp;
 
-[caption id="attachment_965" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/?attachment_id=965" rel="attachment wp-att-965"><img class="size-large wp-image-965" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Cruz_blanca2_GALDONES-PHOTOGRAPHY-Lena-27APR2016-30SM-550x367.jpg" alt="" width="550" height="367" /></a> photo by Galdones Photography[/caption]
+[caption id="attachment_965" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/cruz_blanca2_galdones-photography-lena-27apr2016-30sm/" rel="attachment wp-att-965"><img class="size-large wp-image-965" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Cruz_blanca2_GALDONES-PHOTOGRAPHY-Lena-27APR2016-30SM-550x367.jpg" alt="" width="550" height="367" /></a> photo by Galdones Photography[/caption]
 
 &nbsp;
 
@@ -94,7 +94,7 @@ When you stop by the taproom on Fulton you will see what you might expect to see
 
 &nbsp;
 
-<a href="http://www.mashtunjournal.org/?attachment_id=966" rel="attachment wp-att-966"><img class="alignnone size-large wp-image-966" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/ontourbrewingSM-550x367.jpg" alt="" width="550" height="367" /></a>
+<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/ontourbrewingsm/" rel="attachment wp-att-966"><img class="alignnone size-large wp-image-966" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/ontourbrewingSM-550x367.jpg" alt="" width="550" height="367" /></a>
 
 &nbsp;
 
@@ -120,7 +120,7 @@ On Tour allows you to take some of their dozen or so draft beers to go as a 32oz
 
 &nbsp;
 
-[caption id="attachment_967" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/?attachment_id=967" rel="attachment wp-att-967"><img class="size-large wp-image-967" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Forbidden-Root_Photo-by-BJ-Pichman2SM-550x367.jpg" alt="" width="550" height="367" /></a> Photo by BJ Pichman[/caption]
+[caption id="attachment_967" align="alignnone" width="550"]<a href="http://www.mashtunjournal.org/2017/07/chicago-brewery-tour-the-west-side/forbidden-root_photo-by-bj-pichman2sm/" rel="attachment wp-att-967"><img class="size-large wp-image-967" src="http://www.mashtunjournal.org/wp-content/uploads/2017/07/Forbidden-Root_Photo-by-BJ-Pichman2SM-550x367.jpg" alt="" width="550" height="367" /></a> Photo by BJ Pichman[/caption]
 
 <strong> </strong>
 
