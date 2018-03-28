@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2018-03-27 23:51:09
 ---
-<a href="http://www.mashtunjournal.org/?attachment_id=1005" rel="attachment wp-att-1005"><img class="alignnone size-large wp-image-1005" src="http://www.mashtunjournal.org/wp-content/uploads/2018/03/Screen-Shot-2018-03-27-at-11.42.15-PM-550x677.png" alt="" width="550" height="677" /></a>
+<a href="http://www.mashtunjournal.org/2018/03/mash-tun-journal-11/screen-shot-2018-03-27-at-11-42-15-pm/" rel="attachment wp-att-1005"><img class="alignnone size-large wp-image-1005" src="http://www.mashtunjournal.org/wp-content/uploads/2018/03/Screen-Shot-2018-03-27-at-11.42.15-PM-550x677.png" alt="" width="550" height="677" /></a>
 
 We are about to release our next issue of <em>Mash Tun Journal</em> and thought it would be nice to allow you to <a href="https://drive.google.com/file/d/0B9FVFZJ1CVwEeU5VSjNYeWhzczg/view?usp=sharing">download the entire  issue</a> of our last salvo Enjoy.
 
