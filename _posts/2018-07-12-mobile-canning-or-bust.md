@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2018-07-12 14:04:56
 ---
-<a href="http://www.mashtunjournal.org/?attachment_id=1017" rel="attachment wp-att-1017"><img class="alignnone size-large wp-image-1017" src="http://www.mashtunjournal.org/wp-content/uploads/2018/07/JOELSM-550x733.jpg" alt="" width="550" height="733" /></a>
+<a href="http://www.mashtunjournal.org/2018/07/mobile-canning-or-bust/joelsm/" rel="attachment wp-att-1017"><img class="alignnone size-large wp-image-1017" src="http://www.mashtunjournal.org/wp-content/uploads/2018/07/JOELSM-550x733.jpg" alt="" width="550" height="733" /></a>
 
 <strong>
 Interview with Joel McGinnis of Midwest Mobile Canning
