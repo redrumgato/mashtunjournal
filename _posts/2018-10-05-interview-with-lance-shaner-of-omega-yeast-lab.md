@@ -11,7 +11,7 @@ permalink: >
 published: true
 post_date: 2018-10-05 10:31:20
 ---
-<a href="http://www.mashtunjournal.org/?attachment_id=1025" rel="attachment wp-att-1025"><img class="alignnone size-large wp-image-1025" src="http://www.mashtunjournal.org/wp-content/uploads/2018/10/mash_omega1-550x733.jpg" alt="" width="550" height="733" /></a>
+<a href="http://www.mashtunjournal.org/2018/10/interview-with-lance-shaner-of-omega-yeast-lab/mash_omega1/" rel="attachment wp-att-1025"><img class="alignnone size-large wp-image-1025" src="http://www.mashtunjournal.org/wp-content/uploads/2018/10/mash_omega1-550x733.jpg" alt="" width="550" height="733" /></a>
 
 Interview with Lance Shaner of Omega Yeast Lab
 By Tim Lange
@@ -66,4 +66,4 @@ T: We can’t wait to have some beers here with you soon. Cheers!
 
 &nbsp;
 
-<a href="http://www.mashtunjournal.org/?attachment_id=1027" rel="attachment wp-att-1027"><img class="alignnone size-large wp-image-1027" src="http://www.mashtunjournal.org/wp-content/uploads/2018/10/mash_omega2-550x733.jpg" alt="" width="550" height="733" /></a>
+<a href="http://www.mashtunjournal.org/2018/10/interview-with-lance-shaner-of-omega-yeast-lab/mash_omega2/" rel="attachment wp-att-1027"><img class="alignnone size-large wp-image-1027" src="http://www.mashtunjournal.org/wp-content/uploads/2018/10/mash_omega2-550x733.jpg" alt="" width="550" height="733" /></a>
