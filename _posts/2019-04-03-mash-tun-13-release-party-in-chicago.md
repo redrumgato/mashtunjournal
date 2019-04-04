@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2019-04-03 21:56:52
 ---
-<a href="http://www.mashtunjournal.org/?attachment_id=1032" rel="attachment wp-att-1032"><img class="alignnone size-large wp-image-1032" src="http://www.mashtunjournal.org/wp-content/uploads/2019/04/Screen-Shot-2019-04-03-at-9.47.55-PM-550x678.png" alt="" width="550" height="678" /></a>
+<a href="http://www.mashtunjournal.org/2019/04/mash-tun-13-release-party-in-chicago/screen-shot-2019-04-03-at-9-47-55-pm/" rel="attachment wp-att-1032"><img class="alignnone size-large wp-image-1032" src="http://www.mashtunjournal.org/wp-content/uploads/2019/04/Screen-Shot-2019-04-03-at-9.47.55-PM-550x678.png" alt="" width="550" height="678" /></a>
 
 &nbsp;
 
