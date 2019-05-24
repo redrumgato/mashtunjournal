@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2019-05-23 22:03:50
 ---
-<a href="http://www.mashtunjournal.org/?attachment_id=1037" rel="attachment wp-att-1037"><img class="alignnone size-large wp-image-1037" src="http://www.mashtunjournal.org/wp-content/uploads/2019/05/Screen-Shot-2019-05-23-at-9.52.52-PM-550x413.png" alt="" width="550" height="413" /></a>
+<a href="http://www.mashtunjournal.org/2019/05/craft-beer-and-the-coming-recession-by-daniel-pische/screen-shot-2019-05-23-at-9-52-52-pm/" rel="attachment wp-att-1037"><img class="alignnone size-large wp-image-1037" src="http://www.mashtunjournal.org/wp-content/uploads/2019/05/Screen-Shot-2019-05-23-at-9.52.52-PM-550x413.png" alt="" width="550" height="413" /></a>
 
 &nbsp;
 
