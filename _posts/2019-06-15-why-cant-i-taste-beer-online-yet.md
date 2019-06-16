@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2019-06-15 20:01:02
 ---
-<a href="http://www.mashtunjournal.org/?attachment_id=1052" rel="attachment wp-att-1052"><img class="alignnone size-large wp-image-1052" src="http://www.mashtunjournal.org/wp-content/uploads/2019/06/Marz_CloudyBoyz_01-550x550.jpg" alt="" width="550" height="550" /></a>
+<a href="http://www.mashtunjournal.org/2019/06/why-cant-i-taste-beer-online-yet/marz_cloudyboyz_01/" rel="attachment wp-att-1052"><img class="alignnone size-large wp-image-1052" src="http://www.mashtunjournal.org/wp-content/uploads/2019/06/Marz_CloudyBoyz_01-550x550.jpg" alt="" width="550" height="550" /></a>
 
 &nbsp;
 
@@ -67,4 +67,4 @@ I know I’m talking in circles here, and that this next point is just an attemp
 
 &nbsp;
 
-<a href="http://www.mashtunjournal.org/?attachment_id=1053" rel="attachment wp-att-1053"><img class="alignnone size-large wp-image-1053" src="http://www.mashtunjournal.org/wp-content/uploads/2019/06/cloudyboylabel-550x255.jpg" alt="" width="550" height="255" /></a>
+<a href="http://www.mashtunjournal.org/2019/06/why-cant-i-taste-beer-online-yet/marz_cloudyboyz_out/" rel="attachment wp-att-1053"><img class="alignnone size-large wp-image-1053" src="http://www.mashtunjournal.org/wp-content/uploads/2019/06/cloudyboylabel-550x255.jpg" alt="" width="550" height="255" /></a>
