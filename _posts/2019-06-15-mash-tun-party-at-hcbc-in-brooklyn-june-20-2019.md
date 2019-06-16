@@ -11,7 +11,7 @@ permalink: >
 published: true
 post_date: 2019-06-15 20:33:48
 ---
-<a href="http://www.mashtunjournal.org/?attachment_id=1057" rel="attachment wp-att-1057"><img class="alignnone size-large wp-image-1057" src="http://www.mashtunjournal.org/wp-content/uploads/2019/06/DSC7595-550x824.jpg" alt="" width="550" height="824" /></a>
+<a href="http://www.mashtunjournal.org/2019/06/mash-tun-party-at-hcbc-in-brooklyn-june-20-2019/_dsc7595/" rel="attachment wp-att-1057"><img class="alignnone size-large wp-image-1057" src="http://www.mashtunjournal.org/wp-content/uploads/2019/06/DSC7595-550x824.jpg" alt="" width="550" height="824" /></a>
 
 &nbsp;
 
